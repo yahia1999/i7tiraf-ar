@@ -1,1 +1,0 @@
-# i7tiraf-ar
